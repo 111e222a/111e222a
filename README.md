@@ -10,7 +10,7 @@
 
 ## 📧 How to Reach Me
 - **Email:** [shahidfatima785@gmail.com](mailto:shahidfatima785@gmail.com)
-- **Phone:** +92 325 148092
+- **Phone:** +92 324 5148092
 
 ---
 
